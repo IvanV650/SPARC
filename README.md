@@ -1,2 +1,2 @@
 # SPARC
-Vayan a ver al cine
+El Jesus esta todo tonto
