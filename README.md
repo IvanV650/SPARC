@@ -1,2 +1,2 @@
 # SPARC
-El Jesus esta todo tonto
+Proyecto Semestre i 2019
